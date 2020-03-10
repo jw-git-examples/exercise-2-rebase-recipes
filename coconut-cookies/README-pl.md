@@ -1,3 +1,6 @@
+🌍
+*[English](README.md) ∙ [Polski](README-pl.md)*
+
 Ciasteczka ryżowo-kokosowe
 ==========================
 
