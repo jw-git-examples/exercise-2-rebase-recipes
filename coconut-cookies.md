@@ -1,6 +1,8 @@
-# Rice and coconut cookies
+Rice and coconut cookies
+========================
 
-## Ingredients
+Ingredients
+-----------
 
 * 160 g of rice gruel (not flavored!)
 * 50 g of coconut grains
@@ -10,7 +12,8 @@
 * 1 cube of butter
 * 3 medium eggs
 
-## Steps
+Steps
+-----
 
 * mix all dry ingredients
 * add chopped butter and eggs, knead
