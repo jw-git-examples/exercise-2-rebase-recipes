@@ -9,10 +9,10 @@ Ingredients
 * 160 g of rice porridge (not flavored!)
 * 50 g of shredded coconut
 * 1 flat teaspoon of baking powder
-* 1 vanilla sugar
-* 1 cup of sugar
-* 1 cube of butter
-* 3 medium eggs
+* 1 vanilla sugar (15 g)
+* 1 cup of sugar (220 g)
+* 1 cube of butter (200 g)
+* 3 medium eggs (about 180 g)
 
 Steps
 -----
