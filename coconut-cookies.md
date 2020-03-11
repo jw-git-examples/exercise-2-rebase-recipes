@@ -1,6 +1,8 @@
 Rice and coconut cookies
 ========================
 
+_original recipe by Asia Czerwińska_
+
 Ingredients
 -----------
 
