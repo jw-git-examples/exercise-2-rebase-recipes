@@ -13,7 +13,7 @@
 ## Steps
 
 * mix all dry ingredients
-* add butter and eggs, knead
-* form cookies
+* add chopped butter and eggs, knead
+* form cookies (flattened balls, approx. 4 x 4 x 2 cm)
 * bake 15 minutes in an oven preheated to 160 degrees Celsius, with hot air
   circulation
