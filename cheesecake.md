@@ -11,8 +11,9 @@ Ingredients
 1 cup of cane sugar (½ pound)
 1 tbsp. vanilla sugar (or some vanilla extract)
 1 pack of biscuits
-chocolate
-whipping cream
+3 ounces of milk chocolate
+2 ounces of dark chocolate
+5 ounces of whipping cream
 shredded coconut (2 ounces? perhaps less)
 
 Procedure
@@ -27,9 +28,10 @@ Whip egg whites (it’s best to whip them in a metal bowl), add it to the cheese
 Bake for 60-75 minutes in an oven preheated to 300 F (without fan assistance!).
 Don’t cool too rapidly.
 
-When the cake has mostly cooled down, you can prepare the chocolate topping:
-Put cream in a pot and heat slowly until it is almost boiling.
-Add cracked chocolate and mix until it melts.
+When the cake has mostly cooled down, you can prepare the chocolate topping in a double boil:
+Boil some water in a pot, put a bowl on top of that (so that the steam heats the bowl).
+Put cream in the bowl and wait until it gets hot.
+Add cracked chocolate and mix until it melts (preferably with a whisk).
 Pour over the cake.
 When the chocolate starts to set, sprinkle it with shredded coconut.
 
